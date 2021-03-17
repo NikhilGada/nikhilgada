@@ -20,7 +20,7 @@ ___
 ⚠️ I am open to new ideas, projects and opportunities. Contact me here:
 
 - **Email**: nikhilgada1482@gmail.com
-- **Resume**: [https://nikhilgada.ml/Resume.pdf](https://nikhilgada.ml/updated.pdf)
+- **Resume**: [https://nikhilgada.ml/Resume.pdf](https://nikhilgada.ml/Nikhil Gada Resume.pdf)
 
 
 ## Thanks for stopping by! 🙏
