@@ -37,4 +37,4 @@ I'm currently working as a Software Engineer at Oneture Technolgies.
 
 I've worked with leading stock broking firms like ICICI Securities and cash management companies like CMS Info Systems. I built a digital KYC solution from scratch for ICICI Bank, showcasing my ability to deliver innovative and scalable fintech solutions
 
-*© 2024 - Nikhil Gada - @nikhilgada*
+*© 2025 - Nikhil Gada - @nikhilgada*
